@@ -1,4 +1,4 @@
-
+Get ahead in king legacy with top king legacy Scripts, featuring invisibility and instant win. Download now to dominate every match with ease and confidence, thanks to its
 
 
 
